@@ -18,3 +18,4 @@ To become a technology and digital transformation leader who helps organizations
 Let's Connect!
 I welcome opportunities for professional collaboration, technology projects, research, digital innovation, and international development initiatives.
 My core values: Integrity | Innovation | Accountability | Continuous Learning | Professional Excellence.
+[CV_Kenea Merga.pdf](https://github.com/user-attachments/files/35397913/CV_Kenea.Merga.pdf)
